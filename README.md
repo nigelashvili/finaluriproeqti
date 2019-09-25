@@ -1,0 +1,2 @@
+# finaluriproeqti
+geolabis proeqti
